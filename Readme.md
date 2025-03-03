@@ -1,3 +1,9 @@
+# *ENTRENAMIENTO DE FUERZA PARA ADULTOS MAYORES*
+
+Los expertos de los Centros para el Control y Prevención de Enfermedades y de la Universidad Tufts, con la ayuda de adultos mayores, han creado este libro, Creciendo Más Fuerte: Entrenamiento de Fuerza para Adultos Mayores para ayudarle a fortalecerse y mantener su salud e independencia. Le animo a leerlo cuidadosamente y comenzar a usar este programa de entrenamiento de fuerza lo antes posible. Puede hacer una diferencia profunda en su salud física, mental y emocional.
+
+El programa de ejercicios Creciendo Más Fuerte está basado en una extensa investigación científica. El libro contiene instrucciones detalladas y precauciones de seguridad, y se le insta a leerlas cuidadosamente. Si está bajo el cuidado de un médico por alguna condición médica, discuta este programa con él o ella antes de comenzar. Recuerde que los chequeos médicos regulares son esenciales para su salud y bienestar. Aunque este libro puede servir como su guía para fortalecerse y volverse más físicamente activo, no puede reemplazar el consejo de un profesional de la salud que le conozca personalmente.
+
 # Capítulo 1: El Poder del Entrenamiento de Fuerza
 
 Para muchos adultos mayores, envejecer parece implicar una inevitable pérdida de fuerza, energía y vigor. Pero no tiene por qué ser así. La fragilidad y la disminución de energía que asociamos con el envejecimiento, como la dificultad para caminar distancias, subir escaleras o cargar las compras, se deben principalmente a la pérdida de músculo. El viejo dicho es cierto cuando se trata de músculos: "Úsalo o piérdelo".

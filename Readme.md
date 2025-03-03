@@ -371,6 +371,8 @@ Después de algunas semanas de estos ejercicios, encontrarás que es más fácil
 ### EJERCICIO 5
 ### CURL DE BÍCEPS
 
+<img width="291" alt="image" src="https://github.com/user-attachments/assets/04a13836-3d6e-4896-aa01-70b8d0e2d47f" />
+
 ¿Un galón de leche se siente mucho más pesado de lo que solía ser? ¡Después de unas semanas haciendo el curl de bíceps, levantar ese recipiente de ocho libras será pan comido!
 
 1. Párate o siéntate en una silla con una mancuerna en cada mano. Tus pies deben estar separados al ancho de los hombros con tus brazos a los lados y tus palmas mirando hacia tus muslos.
@@ -387,6 +389,8 @@ Repite 10 veces para 1 serie. Descansa durante aproximadamente 1 minuto. Luego c
 
 ### EJERCICIO 6
 ### SUBIR ESCALONES
+
+<img width="513" alt="image" src="https://github.com/user-attachments/assets/6d9abdc9-5740-44a9-9d65-f257166675d1" />
 
 Este es un gran ejercicio de fortalecimiento que solo requiere un conjunto de escaleras. Pero no dejes que su simplicidad te engañe. Subir escalones mejorará tu equilibrio y desarrollará fuerza en tus piernas, caderas y glúteos.
 
@@ -405,9 +409,11 @@ Repite 10 veces con la pierna izquierda y 10 veces con la pierna derecha para 1 
 
 **Movimiento Avanzado:**
 Cuando estés listo, puedes usar 2 escalones en lugar de 1.
+<img width="214" alt="image" src="https://github.com/user-attachments/assets/b119df97-e38b-4c31-afd5-bd66119c79c1" />
 
 ### EJERCICIO 7
 ### PRESS DE HOMBROS
+<img width="442" alt="image" src="https://github.com/user-attachments/assets/2c3f8027-30b4-483f-8cb5-e256135f1694" />
 
 Este útil ejercicio se dirige a varios músculos en los brazos, la parte superior de la espalda y los hombros. También puede ayudar a tonificar la parte posterior de tus brazos superiores y facilitar el alcance de objetos en armarios altos.
 
@@ -428,6 +434,8 @@ Repite 10 veces para 1 serie. Descansa durante aproximadamente 1 minuto. Luego c
 
 ### EJERCICIO 8
 ### ELEVACIÓN LATERAL DE CADERA
+
+<img width="319" alt="image" src="https://github.com/user-attachments/assets/f67d2a65-1b96-42c3-a402-ca3955c6b63f" />
 
 La elevación lateral de cadera se dirige a los músculos en tus caderas, muslos y glúteos. Este ejercicio tonifica y moldea la parte inferior de tu cuerpo, y fortalece tus huesos de la cadera, que son más vulnerables a fracturas a medida que envejeces.
 
@@ -463,6 +471,8 @@ Los siguientes ejercicios añaden variedad a tu rutina y te dan nuevas formas de
 ### EJERCICIO 9
 ### EXTENSIÓN DE RODILLA
 
+<img width="397" alt="image" src="https://github.com/user-attachments/assets/8205e999-3e71-493c-ac2d-fb53fc70acad" />
+
 Este ejercicio fortalece las rodillas débiles y reduce los síntomas de la artritis de rodilla al dirigirse a los músculos de la parte frontal del muslo.
 
 1. Ponte las pesas de tobillo de forma ajustada. Siéntate completamente hacia atrás en una silla robusta para que tus pies apenas toquen el suelo. Si tu silla es demasiado baja, añade una toalla enrollada debajo de tus rodillas.
@@ -478,6 +488,8 @@ Repite 10 veces con la pierna izquierda y 10 veces con la pierna derecha para 1 
 
 ### EJERCICIO 10
 ### CURL DE RODILLA
+
+<img width="566" alt="image" src="https://github.com/user-attachments/assets/6ed492c4-5502-4d82-b2ec-c29914a9f892" />
 
 Este es un excelente ejercicio para fortalecer los músculos de la parte posterior del muslo superior, conocidos como isquiotibiales. Caminar y subir escaleras son más fáciles cuando haces tanto las extensiones de rodilla como el curl de rodilla.
 
@@ -496,6 +508,8 @@ Repite 10 veces con tu pierna derecha y 10 veces con tu pierna izquierda para un
 ### EJERCICIO 11
 ### INCLINACIÓN PÉLVICA
 
+<img width="473" alt="image" src="https://github.com/user-attachments/assets/38484a09-1bbd-4e05-b077-2fb399c67e3c" />
+
 Este ejercicio mejora la postura y tonifica los músculos del abdomen y los glúteos. Haz este ejercicio junto con la extensión de espalda en el suelo, descrita a continuación en el Ejercicio 12, para fortalecer tu sección media. (No debes tener puestas las pesas de tobillo durante este ejercicio).
 
 1. Acuéstate plano sobre tu espalda en el suelo o en un colchón firme. Mantén tus rodillas dobladas, pies planos y brazos a tus lados. Las palmas de tus manos deben estar hacia el suelo.
@@ -512,6 +526,8 @@ Repite 10 veces para 1 serie. Descansa durante 1 a 2 minutos. Luego haz una segu
 
 ### EJERCICIO 12
 ### EXTENSIÓN DE ESPALDA EN EL SUELO
+
+<img width="568" alt="image" src="https://github.com/user-attachments/assets/63e132de-a26e-47d5-9569-6ed80723209a" />
 
 Puedes sufrir de dolor en la parte baja de la espalda porque tus músculos de la espalda son débiles. La extensión de espalda en el suelo, hecha junto con la inclinación pélvica, fortalecerá estos músculos y aliviará el dolor de espalda.
 
@@ -544,6 +560,9 @@ Recuerde mantener el estiramiento durante al menos 20 a 30 segundos cada vez.
 
 ### ESTIRAMIENTO DE PECHO Y BRAZOS
 
+<img width="198" alt="image" src="https://github.com/user-attachments/assets/3b34eb25-446e-4ae0-9b18-ac847955b19e" />
+
+
 Este simple estiramiento de alcance mejorará la flexibilidad en sus brazos y pecho y en la parte delantera de sus hombros.
 
 1. Párese con los brazos a los lados y los pies separados aproximadamente al ancho de los hombros.
@@ -563,6 +582,9 @@ Suelte el estiramiento y repita.
 ## ENFRIAMIENTO 2
 
 ### ESTIRAMIENTO DE ISQUIOTIBIALES/PANTORRILLA
+
+
+<img width="412" alt="image" src="https://github.com/user-attachments/assets/e9c5803f-41ae-4cf5-95d9-fc6abf968a9a" />
 
 Si tocar sus dedos de los pies con las piernas rectas parece demasiado difícil, no está solo. Muchas personas tienen músculos tensos en la parte posterior de la pierna. Este estiramiento dará a estos músculos más flexibilidad y le facilitará doblarse y alcanzar.
 
@@ -587,6 +609,9 @@ Si este estiramiento es demasiado fácil y no está sintiendo un tirón cómodo 
 
 ### ESTIRAMIENTO DE CUÁDRICEPS
 
+<img width="338" alt="image" src="https://github.com/user-attachments/assets/78e131d2-cfa5-4c43-8240-cf45751ee761" />
+
+
 Este excelente estiramiento debe ser una parte regular de su enfriamiento. Los ejercicios de entrenamiento de fuerza como sentadillas, escalones y extensiones de rodilla se centran en fortalecer los músculos de los cuádriceps. Este estiramiento ayudará a que estos músculos se relajen y los hará más flexibles.
 
 1. Párese junto a un mostrador o una silla resistente con los pies separados aproximadamente al ancho de los hombros y las rodillas rectas, pero no bloqueadas.
@@ -607,6 +632,7 @@ Suelte su tobillo derecho y repita el estiramiento con la otra pierna.
 ## ENFRIAMIENTO 4
 
 ### ESTIRAMIENTO DE CUELLO, ESPALDA SUPERIOR Y HOMBROS
+<img width="253" alt="image" src="https://github.com/user-attachments/assets/e16edf16-7c03-40a4-8d8b-a844e3e728f7" />
 
 Este fácil estiramiento se dirige a otro grupo de músculos que se tensan y estresan fácilmente: el cuello, la espalda y los hombros. Estírese después del entrenamiento de fuerza y durante cualquier actividad que le haga sentir rígido, como sentarse en un escritorio. Encontrará que le dará energía.
 

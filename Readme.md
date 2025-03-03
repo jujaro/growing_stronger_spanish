@@ -220,3 +220,436 @@ Escucha a tu cuerpo. Sabrás cuándo estás lo suficientemente bien para manejar
 
 Las razones enumeradas anteriormente son buenas causas para tomar un día libre del entrenamiento de fuerza. Sé cauteloso: si no estás seguro de si estás lo suficientemente bien para hacer ejercicio, tómate un descanso y ve cómo te sientes al día siguiente.
 
+# Capitulo 5 Fortalecerse:
+# Un Programa de 3 Partes
+
+El programa de entrenamiento de fuerza descrito en este libro tiene tres fases:
+
+- La Parte I fortalece tu cuerpo lenta y suavemente, utilizando solo el peso de tu propio cuerpo
+- La Parte II introduce mancuernas y pesas para tobillos para aumentar la fuerza
+- La Parte III añade variedad con nuevas formas de potenciar aún más tu fuerza.
+
+Los ejercicios en este programa fueron desarrollados en un laboratorio de investigación de la Universidad Tufts. Los ejercicios son seguros y efectivos. Están diseñados para fortalecer todos los grupos musculares principales en la parte superior del cuerpo (hombros, brazos superiores, espalda, pecho y abdomen) y en la parte inferior del cuerpo (caderas, muslos, rodillas, piernas inferiores y tobillos). También se dirigen a los músculos afectados por la osteoartritis, particularmente en los hombros, manos, caderas y rodillas.
+
+Los ejercicios implican levantar una carga pesada, ya sea tu propio peso corporal o una mancuerna o pesa para tobillo, elevando el peso (contando de dos a cuatro) y luego bajándolo (contando hasta cuatro) en un movimiento suave y fluido. El movimiento completo se repite 10 veces para completar una "serie" o grupo de repeticiones.
+
+Aquí tienes un calendario para recorrer las tres partes del programa:
+
+- Parte I: Semanas 1 — 2
+- Parte II: Semanas 3 — 6
+- Parte III: Semanas 7 +
+
+Una vez que hayas realizado los ejercicios de la Parte I dos o tres veces por semana durante al menos dos semanas, puedes pasar con seguridad a la Parte II. Realiza los ejercicios de la Parte II dos o tres veces por semana durante cuatro semanas antes de pasar a los ejercicios descritos en la Parte III.
+
+El Capítulo 7 incluye un libro de trabajo de 12 semanas. Comienza a llevar un registro en este libro de trabajo cuando empieces el entrenamiento de fuerza. Te ayudará a monitorear tu progreso y a mantenerte en el programa. Los estudios de investigación muestran que llevar un registro ayuda a las personas a mantener el entrenamiento de fuerza a largo plazo.
+
+Asegúrate de estar realizando cada ejercicio de manera segura y adecuada con el rango completo de movimiento. También, asegúrate de estirar después de cada entrenamiento y respirar regularmente durante los ejercicios, ¡no contengas la respiración!
+
+## CALENTAMIENTO
+
+### PARTE I:
+### 4 EJERCICIOS PARA COMENZAR
+
+Esta primera parte de tu programa de ejercicios te inicia en tu viaje hacia una mayor fuerza, equilibrio y coordinación. Esta parte es suave y no requiere equipo especial, por lo que puede servir como un programa base. Solo necesitas una silla y una pared. Es útil (pero no necesario) tener un espejo para que puedas comprobar tu forma durante los ejercicios.
+
+Más tarde, una vez que hayas pasado a la Parte II o III, si no te sientes bien o si estás fuera de casa, puedes hacer estos ejercicios para mantenerte al día con tu programa.
+
+> **Consejo de Ejercicio**
+> 
+> Recuerda respirar regularmente durante cada ejercicio. Esto ayudará a mantener la sangre y el oxígeno fluyendo hacia tus músculos en funcionamiento.
+
+### CAMINATA DE 5 MINUTOS
+
+Camina durante 5 minutos para calentar tus músculos para el entrenamiento de fuerza. Puedes caminar al aire libre si el clima lo permite, dentro de casa, o en una cinta de correr si tienes una. Caminar ayudará a dirigir el flujo sanguíneo a tus músculos y preparar tu cuerpo para el ejercicio.
+
+Calentar es importante para prevenir lesiones. También te ayuda a obtener el máximo beneficio del ejercicio, porque los músculos flexibles y calientes responden mejor al desafío de levantar pesas.
+
+También puedes usar una bicicleta, máquina de remo, escaladora u otro equipo aeróbico para calentar.
+
+### EJERCICIO 1
+### SENTADILLAS
+
+Un gran ejercicio para fortalecer las caderas, los muslos y los glúteos. ¡Antes de que te des cuenta, encontrarás que caminar, trotar y subir escaleras son pan comido!
+
+1. Párate directamente frente a una silla robusta. Tus pies deben estar ligeramente más separados que el ancho de los hombros. Extiende tus brazos para que estén paralelos al suelo.
+
+2. Coloca tu peso más sobre los talones que sobre la parte delantera de tus pies. Dobla tus rodillas mientras bajas tus glúteos hacia la silla en un movimiento lento y controlado, mientras cuentas hasta 4.
+
+3. Haz una pausa. Luego, lentamente vuelve a levantarte hasta la posición de pie mientras cuentas hasta 2. Mantén tus rodillas sobre tus tobillos y tu espalda recta.
+
+Repite la sentadilla diez veces. Esto equivale a 1 serie. Descansa durante aproximadamente 1 minuto. Luego completa una segunda serie de 10 sentadillas.
+
+**ASEGÚRATE DE**
+- No sentarte demasiado rápido.
+- No inclinar tu peso demasiado hacia adelante o sobre los dedos de los pies al levantarte.
+
+**Nota 1**
+Comienza usando tus manos como apoyo si este ejercicio es demasiado difícil. Además, si no puedes sentarte completamente o si sientes dolor o incomodidad, coloca un par de almohadas en la silla o solo haz la sentadilla bajando de 4 a 6 pulgadas.
+
+**Nota 2**
+Asegúrate de que tus rodillas NUNCA avancen más allá de los dedos de tus pies; esto puede ejercer presión sobre la articulación de la rodilla. Esto también te ayudará a usar más los músculos de la cadera al levantarte hasta la posición de pie.
+
+### EJERCICIO 2
+### FLEXIONES DE PARED
+
+Este ejercicio es una versión modificada de la flexión que quizás hayas hecho hace años en las clases de educación física. Es más fácil que una flexión normal y no necesitas bajar al suelo, pero ayudará a fortalecer tus brazos, hombros y pecho.
+
+1. Encuentra una pared que esté libre de cualquier objeto como cuadros y ventanas. Párate un poco más lejos que el largo de un brazo de la pared. Mirando hacia la pared, inclina tu cuerpo hacia adelante y coloca las palmas planas contra la pared a la altura de los hombros y separadas al ancho de los hombros.
+
+2. Dobla los codos mientras bajas la parte superior de tu cuerpo hacia la pared en un movimiento lento y controlado mientras cuentas hasta 4. Mantén los pies firmemente plantados.
+
+3. Haz una pausa. Luego, lentamente empújate hacia atrás hasta que tus brazos estén rectos mientras cuentas hasta 4. Asegúrate de no bloquear los codos.
+
+Repite la flexión de pared 10 veces para 1 serie. Descansa durante aproximadamente 1 minuto. Luego haz una segunda serie de 10 flexiones de pared.
+
+**ASEGÚRATE DE**
+- Mantener tus manos apoyadas en la pared para cada serie.
+- No redondear ni arquear tu espalda.
+
+### EJERCICIO 3
+### ELEVACIONES DE PUNTA DE PIE
+
+Si caminar en el parque ya no parece fácil o agradable, ¡el ejercicio de elevación de punta de pie es para ti! Te ayudará a hacer que ese paseo por el parque sea divertido y relajante al fortalecer tus pantorrillas y tobillos y restaurar la estabilidad y el equilibrio.
+
+1. Párate con los pies separados al ancho de los hombros cerca de un mostrador o silla robusta. Usa la silla o el mostrador para equilibrarte.
+
+2. Lentamente empújate hacia arriba lo más que puedas sobre la punta de tus pies mientras cuentas hasta 4. Mantén esta posición durante 2 a 4 segundos.
+
+3. Luego, lentamente baja tus talones de nuevo al suelo mientras cuentas hasta 4.
+
+Repite 10 elevaciones de punta de pie para 1 serie. Descansa durante aproximadamente 1 minuto. Luego completa una segunda serie de 10 elevaciones de punta de pie.
+
+**ASEGÚRATE DE**
+- No apoyarte en el mostrador o silla; úsalo solo para equilibrarte.
+- Respirar regularmente durante el ejercicio.
+
+**Movimiento Avanzado**
+Hacer este ejercicio de elevación de punta de pie en una escalera aumentará su intensidad.
+
+### EJERCICIO 4
+### MARCHA DE DEDOS
+
+En este ejercicio, dejarás que tus dedos, manos y brazos hagan la caminata. Esto ayudará a fortalecer la parte superior de tu cuerpo y tu agarre. También aumentará la flexibilidad de tus brazos, espalda y hombros.
+
+Párate o siéntate hacia adelante en una silla con los pies en el suelo. Tus pies deben estar separados al ancho de los hombros.
+
+**Movimiento 1:** Imagina que hay una pared directamente frente a ti. Lentamente camina con tus dedos hacia arriba por la pared hasta que tus brazos estén por encima de tu cabeza. Mantén tus brazos por encima de la cabeza mientras mueves tus dedos durante unos 10 segundos. Luego, lentamente cáminalos de vuelta hacia abajo.
+
+**Movimiento 2:** A continuación, intenta tocarte las manos detrás de la espalda. Si puedes, alcanza el codo opuesto con cada mano, o acércate lo más que puedas. Mantén la posición durante unos 10 segundos, sintiendo un estiramiento en la espalda, los brazos y el pecho. Suelta los brazos.
+
+**Movimiento 3:** Entrelaza tus dedos frente a tu cuerpo. Levanta tus brazos para que estén paralelos al suelo. Gira tus manos para que tus palmas miren hacia una pared imaginaria. Mantente erguido, pero curva tus hombros hacia adelante. Deberías sentir el estiramiento en tus muñecas y la parte superior de la espalda. Mantén la posición durante unos 10 segundos.
+
+Repite el ejercicio 3 veces.
+
+**DESPUÉS DE HACER LA PARTE I DEL PROGRAMA DURANTE 2 SEMANAS, ESTÁS LISTO PARA PASAR A LA PARTE II.**
+
+## PARTE II:
+## AUMENTANDO TU FUERZA
+
+Esta parte del programa es más desafiante porque añade pesas a los ejercicios. Cuando comiences esta parte, aborda los ejercicios con entusiasmo pero con cuidado. Es importante ejercitarse con la intensidad adecuada, con la cantidad correcta de peso para tu nivel actual de fuerza. Estás trabajando a la intensidad (o dificultad) correcta si puedes completar 10 repeticiones de un ejercicio dado, y no más. Cualquiera que sea tu nivel actual de fuerza, es mejor comenzar esta parte usando pesas de 2 a 3 libras tanto para mancuernas como para pesas de tobillo. Esto reducirá tu riesgo de lesión.
+
+> **Consejo de Ejercicio**
+> 
+> No realices los ejercicios rápidamente. Deben hacerse en un movimiento lento y controlado.
+
+Reevalúa la intensidad de los ejercicios después de completar una semana (o 3 sesiones) de cada conjunto de ejercicios. Comienza a usar pesas más pesadas si algún ejercicio parece fácil con las pesas que estás usando y puedes completar más de 10 repeticiones con la forma adecuada.
+
+Después de algunas semanas de estos ejercicios, encontrarás que es más fácil levantar y transportar objetos pesados, completar tareas domésticas y caminar distancias sin molestias.
+
+### EJERCICIO 5
+### CURL DE BÍCEPS
+
+¿Un galón de leche se siente mucho más pesado de lo que solía ser? ¡Después de unas semanas haciendo el curl de bíceps, levantar ese recipiente de ocho libras será pan comido!
+
+1. Párate o siéntate en una silla con una mancuerna en cada mano. Tus pies deben estar separados al ancho de los hombros con tus brazos a los lados y tus palmas mirando hacia tus muslos.
+
+2. Gira tus antebrazos y lentamente levanta las pesas mientras cuentas hasta 2. Tus palmas deben estar mirando hacia tus hombros. Mantén tus brazos superiores y codos cerca de tu lado, como si tuvieras un periódico metido bajo el brazo.
+
+3. Haz una pausa. Luego, lentamente baja las mancuernas de vuelta hacia tus muslos mientras cuentas hasta cuatro. Gira tus antebrazos para que tus brazos estén nuevamente a tus lados, con las palmas mirando hacia tus muslos.
+
+Repite 10 veces para 1 serie. Descansa durante aproximadamente 1 minuto. Luego completa una segunda serie de 10 repeticiones.
+
+**ASEGÚRATE DE**
+- No dejar que tus brazos superiores o codos se alejen de los lados de tu cuerpo.
+- Mantener tus muñecas rectas.
+
+### EJERCICIO 6
+### SUBIR ESCALONES
+
+Este es un gran ejercicio de fortalecimiento que solo requiere un conjunto de escaleras. Pero no dejes que su simplicidad te engañe. Subir escalones mejorará tu equilibrio y desarrollará fuerza en tus piernas, caderas y glúteos.
+
+1. Párate junto a un pasamanos en la parte inferior de una escalera. Con los pies planos y los dedos de los pies hacia adelante, coloca todo tu pie izquierdo en el primer escalón.
+
+2. Sujeta el pasamanos para mantener el equilibrio. Mientras cuentas hasta 2, coloca tu peso en tu pierna izquierda y enderézala mientras levantas lentamente tu pierna derecha hasta que alcance el primer escalón. Asegúrate de que tu rodilla izquierda permanezca recta y no se mueva hacia adelante más allá de tu tobillo mientras te levantas. Deja que tu pie derecho toque el primer escalón cerca de tu pie izquierdo.
+
+3. Haz una pausa. Luego, usa tu pierna izquierda para soportar tu peso y lentamente baja tu pie derecho de vuelta al suelo mientras cuentas hasta 4.
+
+Repite 10 veces con la pierna izquierda y 10 veces con la pierna derecha para 1 serie. Descansa durante aproximadamente 1 minuto. Luego haz una segunda serie de 10 repeticiones con cada pierna.
+
+**ASEGÚRATE DE**
+- No dejar que tu pierna trasera haga el trabajo.
+- No dejar que el impulso haga el trabajo.
+- Presionar tu peso sobre el talón en lugar de la parte delantera o los dedos de tu pie delantero mientras te levantas.
+
+**Movimiento Avanzado:**
+Cuando estés listo, puedes usar 2 escalones en lugar de 1.
+
+### EJERCICIO 7
+### PRESS DE HOMBROS
+
+Este útil ejercicio se dirige a varios músculos en los brazos, la parte superior de la espalda y los hombros. También puede ayudar a tonificar la parte posterior de tus brazos superiores y facilitar el alcance de objetos en armarios altos.
+
+1. Párate o siéntate en una silla con los pies separados al ancho de los hombros. Toma una mancuerna en cada mano. Levanta tus manos con tus palmas y antebrazos mirando hacia adelante, hasta que las mancuernas estén al nivel de tus hombros y paralelas al suelo.
+
+2. Lentamente empuja las mancuernas hacia arriba sobre tu cabeza hasta que tus brazos estén completamente extendidos mientras cuentas hasta 2. Asegúrate de no bloquear tus codos.
+
+3. Haz una pausa. Luego, lentamente baja las mancuernas de vuelta al nivel de los hombros mientras cuentas hasta 4, llevando tus codos hacia abajo cerca de tus lados.
+
+Repite 10 veces para 1 serie. Descansa durante aproximadamente 1 minuto. Luego completa una segunda serie de 10 repeticiones.
+
+**ASEGÚRATE DE**
+- Mantener tus muñecas rectas.
+- Relajar tu cuello y hombros.
+- No bloquear tus codos; mantén un ligero doblez en tus brazos.
+- No dejar que las mancuernas se muevan demasiado hacia adelante de tu cuerpo o detrás de él.
+- Respirar regularmente durante el ejercicio.
+
+### EJERCICIO 8
+### ELEVACIÓN LATERAL DE CADERA
+
+La elevación lateral de cadera se dirige a los músculos en tus caderas, muslos y glúteos. Este ejercicio tonifica y moldea la parte inferior de tu cuerpo, y fortalece tus huesos de la cadera, que son más vulnerables a fracturas a medida que envejeces.
+
+1. Párate detrás de una silla robusta, con los pies ligeramente separados y los dedos de los pies mirando hacia adelante. Mantén tus piernas rectas, pero no bloquees tus rodillas.
+
+2. Lentamente levanta tu pierna izquierda hacia un lado mientras cuentas hasta 2. Mantén tu pierna recta, pero de nuevo, no bloquees tu rodilla.
+
+3. Haz una pausa. Luego, lentamente baja tu pie izquierdo de vuelta al suelo mientras cuentas hasta 4.
+
+Repite 10 veces con la pierna izquierda y 10 veces con la pierna derecha para 1 serie. Descansa durante aproximadamente 1 minuto. Luego haz una segunda serie de 10 repeticiones con cada pierna.
+
+**Nota**
+Solo es necesaria una pequeña cantidad de movimiento hacia el lado. Es muy importante hacer este ejercicio con un movimiento lento y controlado.
+
+**ASEGÚRATE DE:**
+- No bloquear tu rodilla en la pierna de apoyo.
+- Mantener los dedos de tus pies mirando hacia adelante durante todo el movimiento.
+
+**Movimiento Avanzado:**
+Puedes añadir pesas de tobillo para hacer el ejercicio más difícil, como se muestra arriba. Comienza con 1 a 3 libras.
+
+**DESPUÉS DE HABER REALIZADO LOS EJERCICIOS EN LAS PARTES I Y II DEL PROGRAMA 2 O 3 VECES POR SEMANA DURANTE AL MENOS 4 SEMANAS, ESTÁS LISTO PARA PASAR A LA PARTE III.**
+
+## PARTE III:
+## COMPLEMENTANDO TU PROGRAMA
+
+Los siguientes ejercicios añaden variedad a tu rutina y te dan nuevas formas de aumentar tu fuerza. Los ejercicios 9 y 10 se dirigen a los músculos de la parte superior de la pierna y requieren pesas de tobillo. Estos ejercicios deben hacerse juntos. Los ejercicios 11 y 12 fortalecen el abdomen y la espalda y también deben hacerse juntos. Como con todos los ejercicios de entrenamiento de fuerza, recuerda respirar durante cada ejercicio. Cuando comiences a usar pesas de tobillo, usa 1 a 3 libras y aumenta el peso a medida que te vuelvas más fuerte con el tiempo.
+
+> **Consejo de Ejercicio**
+> 
+> Nunca uses pesas de tobillo ni sostengas mancuernas mientras caminas o haces otros ejercicios aeróbicos como andar en bicicleta o trotar.
+
+### EJERCICIO 9
+### EXTENSIÓN DE RODILLA
+
+Este ejercicio fortalece las rodillas débiles y reduce los síntomas de la artritis de rodilla al dirigirse a los músculos de la parte frontal del muslo.
+
+1. Ponte las pesas de tobillo de forma ajustada. Siéntate completamente hacia atrás en una silla robusta para que tus pies apenas toquen el suelo. Si tu silla es demasiado baja, añade una toalla enrollada debajo de tus rodillas.
+
+2. Apunta tus dedos de los pies hacia adelante. Flexiona tu pie izquierdo y levanta lentamente tu pierna izquierda mientras cuentas hasta dos. Extiende tu pierna hasta que tu rodilla esté recta.
+
+3. Haz una pausa. Luego, lentamente baja tu pie de vuelta al suelo mientras cuentas hasta 4.
+
+Repite 10 veces con la pierna izquierda y 10 veces con la pierna derecha para 1 serie. Descansa durante 1 a 2 minutos. Luego haz una segunda serie de 10 repeticiones con cada pierna.
+
+**ASEGÚRATE DE**
+- Mantener tu tobillo flexionado durante todo el movimiento.
+
+### EJERCICIO 10
+### CURL DE RODILLA
+
+Este es un excelente ejercicio para fortalecer los músculos de la parte posterior del muslo superior, conocidos como isquiotibiales. Caminar y subir escaleras son más fáciles cuando haces tanto las extensiones de rodilla como el curl de rodilla.
+
+1. Mantén tus pesas de tobillo puestas y párate detrás de una silla robusta. Tus pies deben estar un poco menos separados que el ancho de los hombros y mirando hacia adelante.
+
+2. Mantén tu pie flexionado y lentamente dobla tu pierna derecha y lleva tu talón hacia tus glúteos mientras cuentas hasta 2.
+
+3. Haz una pausa. Luego, lentamente baja tu pie de vuelta al suelo mientras cuentas hasta 4.
+
+Repite 10 veces con tu pierna derecha y 10 veces con tu pierna izquierda para una serie. Descansa durante 1 a 2 minutos. Luego haz una segunda serie de 10 repeticiones con cada pierna.
+
+**ASEGÚRATE DE**
+- Mantener el muslo de la pierna que trabaja en línea con la pierna de apoyo en todo momento.
+- Mantener el pie de la pierna que trabaja flexionado durante todo el movimiento.
+
+### EJERCICIO 11
+### INCLINACIÓN PÉLVICA
+
+Este ejercicio mejora la postura y tonifica los músculos del abdomen y los glúteos. Haz este ejercicio junto con la extensión de espalda en el suelo, descrita a continuación en el Ejercicio 12, para fortalecer tu sección media. (No debes tener puestas las pesas de tobillo durante este ejercicio).
+
+1. Acuéstate plano sobre tu espalda en el suelo o en un colchón firme. Mantén tus rodillas dobladas, pies planos y brazos a tus lados. Las palmas de tus manos deben estar hacia el suelo.
+
+2. Lentamente rueda tu pelvis hacia tu abdomen para que tus caderas y la parte baja de tu espalda se levanten del suelo mientras cuentas hasta 2. Tu espalda superior y hombros deben permanecer en su lugar.
+
+3. Haz una pausa. Luego, lentamente baja tu pelvis completamente hacia abajo mientras cuentas hasta 4.
+
+Repite 10 veces para 1 serie. Descansa durante 1 a 2 minutos. Luego haz una segunda serie de 10 repeticiones.
+
+**ASEGÚRATE DE:**
+- Respirar durante el ejercicio.
+- No levantar tu espalda superior o hombros del suelo.
+
+### EJERCICIO 12
+### EXTENSIÓN DE ESPALDA EN EL SUELO
+
+Puedes sufrir de dolor en la parte baja de la espalda porque tus músculos de la espalda son débiles. La extensión de espalda en el suelo, hecha junto con la inclinación pélvica, fortalecerá estos músculos y aliviará el dolor de espalda.
+
+1. Acuéstate boca abajo en el suelo. Extiende tu brazo izquierdo recto sobre tu cabeza para que se alinee con tu cuerpo. Mantén el otro brazo a tu lado.
+
+2. Lentamente levanta tu brazo izquierdo y pierna derecha del suelo mientras cuentas hasta 2. Mantén tu brazo y pierna al mismo nivel.
+
+3. Haz una pausa. Luego, lentamente baja tu brazo y pierna de vuelta al suelo mientras cuentas hasta 4.
+
+Repite 10 veces para 1 serie, y luego cambia al brazo derecho y la pierna izquierda para otras 10 repeticiones. Descansa durante 1 a 2 minutos. Luego, haz una segunda serie de 10 repeticiones.
+
+**ASEGÚRATE DE**
+- Mantener tu cabeza, cuello y espalda en línea recta.
+
+---
+
+## ENFRIAMIENTO:
+### ESTIRAMIENTO PARA FLEXIBILIDAD Y RELAJACIÓN
+
+Enfriarse justo después de completar su entrenamiento es tan importante como calentar antes de comenzar a ejercitarse. El estiramiento es una excelente manera de enfriarse, mejorar la flexibilidad y evitar lesiones. También aliviará la tensión y le ayudará a relajarse. De hecho, es una buena idea estirarse y respirar profundamente siempre que se sienta tenso o necesite relajarse—beneficiará a su cuerpo y mente.
+
+Haga los siguientes estiramientos después de cada entrenamiento de fuerza, junto con cualquier otro que ya conozca.
+
+**Consejo de Ejercicio:**
+Recuerde mantener el estiramiento durante al menos 20 a 30 segundos cada vez.
+
+---
+
+## ENFRIAMIENTO 1
+
+### ESTIRAMIENTO DE PECHO Y BRAZOS
+
+Este simple estiramiento de alcance mejorará la flexibilidad en sus brazos y pecho y en la parte delantera de sus hombros.
+
+1. Párese con los brazos a los lados y los pies separados aproximadamente al ancho de los hombros.
+
+2. Extienda ambos brazos detrás de su espalda y junte las manos. Retraiga sus hombros si es posible.
+
+3. Mantenga el estiramiento durante una cuenta lenta de 20 a 30 segundos, respirando durante todo el tiempo.
+
+Suelte el estiramiento y repita.
+
+**ASEGÚRESE DE:**
+- Respirar durante todo el estiramiento.
+- Mantener la espalda recta, relajar los hombros y mirar hacia adelante.
+
+---
+
+## ENFRIAMIENTO 2
+
+### ESTIRAMIENTO DE ISQUIOTIBIALES/PANTORRILLA
+
+Si tocar sus dedos de los pies con las piernas rectas parece demasiado difícil, no está solo. Muchas personas tienen músculos tensos en la parte posterior de la pierna. Este estiramiento dará a estos músculos más flexibilidad y le facilitará doblarse y alcanzar.
+
+1. Párese de cara a una silla resistente.
+
+2. Lentamente inclínese hacia adelante en la cadera, manteniendo las piernas rectas sin bloquear las rodillas. Descanse sus manos en el asiento de la silla con los codos ligeramente doblados, sintiendo un estiramiento en la parte posterior de su pierna superior e inferior. Mantenga la espalda plana.
+
+3. Mantenga el estiramiento durante una cuenta lenta de 20 a 30 segundos, respirando durante todo el tiempo.
+
+Suelte el estiramiento y repita.
+
+**Nota:**
+Si este estiramiento es demasiado fácil y no está sintiendo un tirón cómodo en la parte posterior de sus piernas, intente doblar más los codos. Intente ir tan lejos como para descansar sus antebrazos y codos en el asiento de la silla. Solo asegúrese de estar doblando en las caderas y manteniendo la espalda recta.
+
+**ASEGÚRESE DE:**
+- Respirar durante todo el estiramiento y concentrarse en relajarse.
+- Mantener la espalda recta mientras se inclina hacia la silla.
+
+---
+
+## ENFRIAMIENTO 3
+
+### ESTIRAMIENTO DE CUÁDRICEPS
+
+Este excelente estiramiento debe ser una parte regular de su enfriamiento. Los ejercicios de entrenamiento de fuerza como sentadillas, escalones y extensiones de rodilla se centran en fortalecer los músculos de los cuádriceps. Este estiramiento ayudará a que estos músculos se relajen y los hará más flexibles.
+
+1. Párese junto a un mostrador o una silla resistente con los pies separados aproximadamente al ancho de los hombros y las rodillas rectas, pero no bloqueadas.
+
+2. Sosténgase de una silla o mostrador para equilibrarse con la mano izquierda. Doble su pierna derecha hacia atrás y agarre su pie o tobillo derecho con la mano derecha hasta que su muslo esté perpendicular al suelo. Asegúrese de pararse erguido—no se incline hacia adelante. (Si no puede agarrar su tobillo con la mano, solo mantenga su pierna lo más cerca posible de la perpendicular y mantenga la flexión.) Debería sentir un estiramiento en la parte delantera de su muslo.
+
+3. Mantenga el estiramiento durante una cuenta lenta de 20 a 30 segundos, respirando durante todo el tiempo.
+
+Suelte su tobillo derecho y repita el estiramiento con la otra pierna.
+
+**ASEGÚRESE DE:**
+- Respirar durante todo el estiramiento y concentrarse en relajarse.
+- Pararse erguido y mirar hacia adelante.
+- No bloquear su rodilla de apoyo.
+
+---
+
+## ENFRIAMIENTO 4
+
+### ESTIRAMIENTO DE CUELLO, ESPALDA SUPERIOR Y HOMBROS
+
+Este fácil estiramiento se dirige a otro grupo de músculos que se tensan y estresan fácilmente: el cuello, la espalda y los hombros. Estírese después del entrenamiento de fuerza y durante cualquier actividad que le haga sentir rígido, como sentarse en un escritorio. Encontrará que le dará energía.
+
+1. Párese (o siéntese) con los pies separados al ancho de los hombros, las rodillas rectas pero no bloqueadas, y las manos juntas frente a usted. Gire sus manos para que las palmas miren hacia el suelo. Luego levante sus brazos hasta aproximadamente la altura del pecho.
+
+2. Presione sus palmas alejándolas de su cuerpo y sienta un estiramiento en su cuello, parte superior de la espalda y a lo largo de sus hombros.
+
+3. Mantenga el estiramiento durante una cuenta lenta de 20 a 30 segundos, respirando durante todo el tiempo.
+
+Suelte el estiramiento y repita.
+
+**ASEGÚRESE DE:**
+- Respirar durante todo el estiramiento.
+- No curvar o arquear la espalda.
+
+---
+
+## Capítulo 6: El Coraje de Progresar
+
+Una vez que pueda hacer los ejercicios en la Parte III del programa, probablemente habrá ganado mucha masa muscular y fuerza y mejorado su equilibrio, coordinación y flexibilidad. Felicidades. Es un gran logro comenzar y continuar un programa de entrenamiento de fuerza. Es importante progresar si quiere experimentar los muchos beneficios del entrenamiento de fuerza. Esto significa siempre avanzar en la intensidad de su entrenamiento usando pesas más pesadas. Como resultado, sus músculos crecerán y se mantendrán fuertes. También se sentirá más independiente y será más capaz de vivir bien hasta la vejez sin miedo a caerse. También le dará un gran sentido de orgullo y logro.
+
+### CÓMO PROGRESAR
+
+Después de aproximadamente la primera semana de entrenamiento de fuerza, debe comenzar a hacer cada ejercicio con pesas que pueda levantar al menos 10 veces con solo dificultad moderada. El peso que está usando puede ser demasiado pesado si no puede hacer un ejercicio determinado 8 veces seguidas. Es posible que necesite reducirlo.
+
+Debe reconsiderar si los pesos que está usando son lo suficientemente pesados después de 2 semanas de entrenamiento de fuerza. Puede comenzar a hacer el press sobre la cabeza con mancuernas de 2 libras, por ejemplo. Para el final de la segunda semana, puede ser capaz de levantar fácilmente la mancuerna de 2 libras más de 12 veces. Asegúrese de estar haciendo todos los movimientos en el ejercicio y que su cuerpo esté posicionado correctamente (conocido como buena forma). Ahora debe intentar usar mancuernas de 3 libras y ver cómo se siente el ejercicio.
+
+### CUÁNDO PROGRESAR—Y CUÁNDO NO HACERLO
+
+Puede ser hora de añadir pesas más pesadas a su entrenamiento si está en buena salud, está haciendo ejercicio regularmente y un ejercicio determinado se siente demasiado fácil. Un ejercicio debe considerarse demasiado fácil si puede hacerlo más de 10 o 12 veces con los pesos que ha estado usando actualmente. No progrese si ha estado enfermo, está lesionado o sus músculos se sienten muy adoloridos.
+
+### TRABAJANDO CON LA INTENSIDAD CORRECTA—JUZGANDO SU ESFUERZO
+
+Es importante encontrar el equilibrio correcto entre ser cuidadoso al ejercitarse para prevenir lesiones y siempre progresar para aumentar la fuerza. Esta escala fácil de usar le ayudará a encontrar la intensidad correcta para su entrenamiento.
+
+**INDICADOR DE INTENSIDAD DE EJERCICIO**
+
+**Hágase Estas Preguntas Después de Cada Ejercicio**
+
+1. ¿Pudo completar 2 series de 10 repeticiones con buena forma?
+   - **No:** Reduzca el peso para que pueda levantar 10 veces con buena forma; luego repita para una segunda serie.
+   - **Sí:** Por favor continúe con la pregunta 2.
+
+2. Después de completar 10 repeticiones, ¿necesita descansar porque el peso es demasiado pesado para completar más repeticiones con buena forma?
+   - **Sí:** Está trabajando con la intensidad correcta y no debe aumentar el peso.
+   - **No:** Por favor continúe con las preguntas tres y cuatro para determinar cómo aumentar de manera segura la intensidad de su entrenamiento.
+
+3. ¿Podría haber hecho algunas repeticiones más con buena forma sin un descanso?
+   - **Sí:** Puede sentir que solo puede hacer algunas repeticiones más, no todo el siguiente conjunto de diez sin un descanso. En su próximo entrenamiento, haga el primer conjunto de repeticiones con el peso actual que ha estado usando. Luego haga el segundo conjunto con un peso ligeramente más pesado. Por ejemplo, si actualmente está usando mancuernas de 2 libras, use mancuernas de 3 libras para su segundo conjunto.
+
+4. ¿Podría haber hecho las veinte repeticiones a la vez, sin un descanso?
+   - **Sí:** Use mancuernas más pesadas para ambos conjuntos de repeticiones la próxima vez que entrene.
+
+**NOTA 1:**
+Recuerde que debe completar cada repetición con la forma adecuada, usando el conteo "2-arriba, pausa, 4-abajo".
+
+**NOTA 2:**
+Cuando comience a hacer los ejercicios con las pesas de tobillo ajustables, podrá aumentar la intensidad añadiendo pesas de media o 1 libra a cada pierna.

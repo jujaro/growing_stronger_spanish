@@ -1,4 +1,4 @@
-# *ENTRENAMIENTO DE FUERZA PARA ADULTOS MAYORES*
+# **ENTRENAMIENTO DE FUERZA PARA ADULTOS MAYORES**
 
 (Traduccion del Libro original: https://stacks.cdc.gov/view/cdc/11447 Del centro de prevencion y control de enfermedades https://www.cdc.gov)
 

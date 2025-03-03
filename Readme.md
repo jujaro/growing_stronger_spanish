@@ -1,5 +1,7 @@
 # *ENTRENAMIENTO DE FUERZA PARA ADULTOS MAYORES*
 
+(Traduccion del Libro original: https://stacks.cdc.gov/view/cdc/11447 Del centro de prevencion y control de enfermedades https://www.cdc.gov)
+
 Los expertos de los Centros para el Control y Prevención de Enfermedades y de la Universidad Tufts, con la ayuda de adultos mayores, han creado este libro, Creciendo Más Fuerte: Entrenamiento de Fuerza para Adultos Mayores para ayudarle a fortalecerse y mantener su salud e independencia. Le animo a leerlo cuidadosamente y comenzar a usar este programa de entrenamiento de fuerza lo antes posible. Puede hacer una diferencia profunda en su salud física, mental y emocional.
 
 El programa de ejercicios Creciendo Más Fuerte está basado en una extensa investigación científica. El libro contiene instrucciones detalladas y precauciones de seguridad, y se le insta a leerlas cuidadosamente. Si está bajo el cuidado de un médico por alguna condición médica, discuta este programa con él o ella antes de comenzar. Recuerde que los chequeos médicos regulares son esenciales para su salud y bienestar. Aunque este libro puede servir como su guía para fortalecerse y volverse más físicamente activo, no puede reemplazar el consejo de un profesional de la salud que le conozca personalmente.
